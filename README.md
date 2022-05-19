@@ -1,4 +1,4 @@
-### Hi soy jose julian vargas 👋
+### Hi i am jose julian vargas potess 👋
 
 <!--
 **Dillinger2/Dillinger2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
